@@ -2,4 +2,5 @@
 Just another repository
 Hi everyone!
 
-Lea here! i like travelling in space and help new civilizations
+Lea here! I like travelling in space and help new civilizations.
+I've met some amazing brand new worlds with no pollution
